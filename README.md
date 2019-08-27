@@ -10,7 +10,7 @@ xiaoliebian 的个人博客
 
 ### 最新
 
-* [世界，你好！](http://blog.xiaoliebian.com/hello-solo)
+* [建筑](http://blog.xiaoliebian.com/articles/2019/08/26/1566826529421.html)
 
 
 
